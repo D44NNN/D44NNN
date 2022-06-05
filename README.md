@@ -1,8 +1,8 @@
-- 👋 Hi, I’m Dan
-- 👀 I’m interested in music / journaling
+- 👋 Hi, I’m Dan/Danny
+- 🤭 I’m interested in music / journaling
 - 🌱 I’m currently learning cheerleading
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me - Discord ( ♡ ・#1825 ) 
+- 📫 contact me on... - Discord ( ✦ DY5M#1825 ) 
 
 <!---
 D44NNN/D44NNN is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
